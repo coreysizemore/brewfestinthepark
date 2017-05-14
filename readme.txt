@@ -1,4 +1,4 @@
-Organic Craft BrewFest
+BrewFest In The Park
 http://www.organicbrewfest.com/
 
 by Corey Sizemore Design & Development
